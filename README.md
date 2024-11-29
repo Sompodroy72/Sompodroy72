@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sompodroy72
+- 👋 Hi, I’m @DARK
 - 👀 I’m interested in hacking
 - 🌱 I’m currently learning hacking
 - 💞️ I’m looking to collaborate on hackers
